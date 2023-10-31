@@ -8,20 +8,20 @@
 
 ## Lyrics 
 
-Go, Eagles, Go
-Put all you have in every play
-We’ll let you know
-That we are with you all way
-So then it’s fight, Eagles, fight
-Show us the fight we’d like to see
-Red and White just fight, fight, fight
-And Eagles will win the victory!
+Go, Eagles, Go</p>
+Put all you have in every play</p>
+We’ll let you know</p>
+That we are with you all way</p>
+So then it’s fight, Eagles, fight</p>
+Show us the fight we’d like to see</p>
+Red and White just fight, fight, fight</p>
+And Eagles will win the victory!</p>
 
-E-A-S-T-E-R-N! 
-Eastern Eagles! 
-Go, Fight, Win!
+E-A-S-T-E-R-N!</p>
+Eastern Eagles! </p>
+Go, Fight, Win!</p>
 
-So then it’s fight, Eagles, fight
-Show us the fight we’d like to see
-Red and White just fight, fight, fight
+So then it’s fight, Eagles, fight</p>
+how us the fight we’d like to see</p>
+Red and White just fight, fight, fight</p>
 And Eagles will win the victory!
